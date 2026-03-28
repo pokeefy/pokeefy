@@ -4,4 +4,4 @@
 
 ⚡︎ | Learn more on my socials at https://pokeworks.site
 
-✉ | Looking to contact me? Shoot me a DM - My Discord username is ".poke"
+🖂 | Looking to contact me? Shoot me a DM - My Discord username is ".poke"
